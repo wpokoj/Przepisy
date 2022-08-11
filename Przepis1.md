@@ -1,7 +1,7 @@
 # Pierogi
 
 Czas przygotowania: 15 minut
-Liczba porcji: około 50 - 60 pierogów
+Liczba porcji: około 60 - 70 pierogów
 
 Kaloryczność kcal: 37 w 1 pierogu bez nadzienia
 Dieta: wegańska, wegetariańska

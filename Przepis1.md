@@ -9,7 +9,7 @@ Dieta: wegańska, wegetariańska
 Składniki:
 - 500 g mąki pszennej np. typ 500
 - pół łyżeczki soli
-- 4 łyżki oleju - 50 ml
+- 5 łyżek oleju - 62,5 ml
 - szklanka gorącej wody - 250 ml
 - Przepis na pierogi
 - Szklanka ma u mnie pojemność 250 ml.

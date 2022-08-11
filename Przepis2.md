@@ -4,7 +4,7 @@
 
 - 10 SZTUK, PO 108 KCAL
 - 1 szklanka mąki pszennej
-- 2 jajka
+- 3 jajka
 - 1 szklanka mleka
 - 3/4 szklanki wody (najlepiej gazowanej)
 - szczypta soli

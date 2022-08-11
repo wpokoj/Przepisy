@@ -1,2 +1,4 @@
 # Przepisy
 Garść przepisów
+
+Changes
